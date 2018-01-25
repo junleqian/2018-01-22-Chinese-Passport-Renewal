@@ -105,6 +105,15 @@ http://www.kiro7.com/news/local/passport-to-fly-domestically-what-washington-res
 
 http://www.dol.wa.gov/driverslicense/edlget.html
 
+## 工具
+Google Keep: https://keep.google.com/
+
+Eventbrite: https://www.eventbrite.com/
+
+Expedia: https://expedia.com/
+
+Hotwire: https://hotwire.com/
+
 ## 后日谈
 自2008年开始，中国留学生人数年年暴增。由于该批次出国的留学生都持有10年有效期的护照，2018年开始将会有一大波仍在读研或已经工作的留学生第一本护照面临过期。西雅图作为新兴的计算机科技产业港口，对于中国护照换发的需求只增不减。
 
